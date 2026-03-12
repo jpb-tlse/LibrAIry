@@ -1,1 +1,1 @@
-TO download LibrAIry, please go to the website www.LibrAIry.app .
+To download LibrAIry, please go to the website www.LibrAIry.app .
